@@ -1,2 +1,6 @@
 # popjuniorleak
-lifeserver &amp; mission of pop junior
+
+
+agradecimientos a: Otter Team ❤️ nutrias for ever
+
+Thats for all ❤️
